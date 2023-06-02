@@ -1,5 +1,5 @@
 # May 2023 STARS Training
-
+This is the Adele song 
 Welcome to the STARS training repo!
 Whenever I'm alone with you
 You make me feel like I am home again
@@ -36,3 +36,8 @@ I will always love you
 I'll always love you
 I'll always love you
 'Cause I love you
+
+
+## New section that Beatrice is working on
+
+I also like Adele
