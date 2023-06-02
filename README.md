@@ -1,7 +1,9 @@
 # May 2023 STARS Training
 
-Olga's song
+Welcome to the STARS training repo!
+Elie's Movies
 
+Olga's song
 
 Grandma used to pray out loud
 By her bed every night
