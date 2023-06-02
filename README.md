@@ -1,6 +1,8 @@
 # May 2023 STARS Training
 
-Welcome to the STARS training repo!
+Olga's song
+
+
 Grandma used to pray out loud
 By her bed every night
 To me it sounded like mumblin'
