@@ -1,0 +1,34 @@
+# May 2023 STARS Training
+
+Paroles
+O wanitwa mos, O wanitwa mos
+Master Master KG
+O wanitwa mos
+Jerusalema ikhaya lami
+Ngilondoloze
+Uhambe nami
+Zungangishiyi lana
+Jerusalema ikhaya lami
+Ngilondoloze
+Uhambe nami
+Zungangishiyi lana
+Ndawo yami ayikho lana
+Mbuso wami awukho lana
+Ngilondoloze
+Zuhambe nami
+Ndawo yami ayikho lana
+Mbuso wami awukho lana
+Ngilondoloze
+Zuhambe nami
+Ngilondoloze ngilondoloze ngilondoloze
+Zungangishiyi lana
+Ngilondoloze ngilondoloze ngilondoloze
+Zungangishiyi lana
+Ndawo yami ayikho lana
+Mbuso wami awukho lana
+Ngilondoloze
+Zuhambe nami
+Ngilondoloze ngilondoloze ngilondoloze
+Zungangishiyi lana
+Ngilondoloze ngilondoloze ngilondoloze
+Zungangishiyi lana
