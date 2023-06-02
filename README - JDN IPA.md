@@ -36,3 +36,8 @@ I will always love you
 I'll always love you
 I'll always love you
 'Cause I love you
+
+
+## New section that Beatrice is working on
+
+I also like Adele
